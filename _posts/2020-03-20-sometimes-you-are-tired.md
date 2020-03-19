@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  ""
+title:  "Live for another day"
 ---
 
 Sometimes I wake up and I feel doubt crawling all over me. Things I have let go, things I have stuck with. I am responsible for lives beyond my own. Am I doing the right thing? I think I'll never know. The truth and gravity escapes me until I am intoxicated and detached. I am regurgitating the life so long ago. I am sitting on a table, wiping my hands off on my jeans. The first day that someone who wasn't related to me by blood, cared about me, or at least it felt like that. I'll never forget and never forgive. 15 years later, it is something I cherish and I regret. Hollow coves - Anew, in my ears. Inebriated on some cheap white wine, I am counting my days to the second one. I know it will ground me, evoke love in me that I have not known before, shackles me like nothing else and yet it will be worth it all. I know the feeling. The month has been depressing and a let down. Hopefully things will turn around and I'll look back at my choices and say 'This is how it all came about to be!'. 'hic!'
